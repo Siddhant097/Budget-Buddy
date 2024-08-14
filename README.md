@@ -93,7 +93,7 @@ Contributions are welcome! If you have suggestions for new features or improveme
 
 ## Contact
 
-If you have any questions or feedback, please reach out to me at [kaungmyathan2222@gmail.com](mailto:kaungmyathan2222@gmail.com).
+If you have any questions or feedback, please reach out to me at [@gmail.com](mailto:kaungmyathan2222@gmail.com).
 
 ---
 
